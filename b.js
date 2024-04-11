@@ -1,1 +1,1 @@
-"jaspal kanipla kanipla"
+"jaspal kanipla "
